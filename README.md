@@ -11,7 +11,8 @@ _ _　　e　˚ 　**@** bs0fr　　⏖  ₊
 
     ︵︵
 
-hello chat
+   i'm usually seen above the two barrels near docks.  if you don't see me there, i'm usually just on docks or in party island ^-^ .  
+[recommended to not int cause i'm usually just afk when i'm in docks ,,]
     
 - - - - - - - - - - - - - - - - - - - - - - 
 
