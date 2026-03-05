@@ -7,7 +7,6 @@ i lowkirk dont know what to put here
     ︵︵
 
 _ _　　e　˚ 　**@** bs0fr　　⏖  ₊
-    ___^ c4ll me bsfr ifywant !___
 
     ︵︵
 
