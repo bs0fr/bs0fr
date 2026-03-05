@@ -2,7 +2,7 @@ i lowkirk dont know what to put here
 
     ︵︵
     
- ˚ 　*THEY/THEM ONLY !!!*　ᶻᶻ　lwk i have boosfer as my self insert 
+ ˚ 　*THEY/THEM ONLY !!!*　ᶻᶻ　
 
     ︵︵
 
