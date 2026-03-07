@@ -6,12 +6,12 @@ i lowkirk dont know what to put here
 
     ︵︵
 
-_ _　　e　˚ 　**@** bs0fr　　⏖  ₊
+_ _　　***please look at @006n7 for more cuz thats my main,, gulps***  ₊
 
     ︵︵
 
-   i'm usually seen above the two barrels near docks.  if you don't see me there, i'm usually just on docks or in party island ^-^ .  
-[recommended to not int cause i'm usually just afk when i'm in docks ,,]
+   i'm usually seen near docks or in the mcyt area, yayy!!  
+[recommended to not int cause i'm usually just afk LOL]
     
 - - - - - - - - - - - - - - - - - - - - - - 
 
