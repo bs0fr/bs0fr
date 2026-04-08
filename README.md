@@ -6,7 +6,7 @@ i lowkirk dont know what to put here
 
     ︵︵
 
-_ _　　***please look at @006n7 for more cuz thats my main,, gulps***  ₊
+_ _　　***please look at @genderlesschild  for more cuz thats my main,, gulps***  ₊
 
     ︵︵
 
